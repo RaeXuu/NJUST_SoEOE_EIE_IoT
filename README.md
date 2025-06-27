@@ -1,0 +1,2 @@
+# NJUST_SoEOE_EIE_IoT
+受校友们启发，决定把Notability里存的PPT和一些手写笔记扫描上传。
